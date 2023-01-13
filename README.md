@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KongLingchong
-- 👀 I’m interested in read books.
+- 👀 I’m interested in reading books.
 - 🌱 I’m currently learning English.
 - 📫 email me:klczyh@qq.com
 
