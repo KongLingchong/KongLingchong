@@ -1,5 +1,5 @@
 # 👋 Hi, I’m @KongLingchong
-I am a Chinese student.
+I am a Chinese student.(I am a boy)
 
 (my school push me too hard)
 
