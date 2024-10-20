@@ -33,7 +33,7 @@ It's so amazing that I am using DEV,the old IDE!(I think you don't know what is 
 ![批注 2024-07-02 112123](https://github.com/user-attachments/assets/fa72220a-ecee-4f8a-b216-e9841f855220)
 
 ![批注 2024-07-12 105327](https://github.com/user-attachments/assets/af85faf0-4ac6-4161-9f0d-0d99947151e7)
-## I love you forever!
+## I love my wife forever!
 <!---
 KongLingchong/KongLingchong is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
